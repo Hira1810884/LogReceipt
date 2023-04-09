@@ -10,5 +10,5 @@
 本アプリが利用者の個人情報を第三者へ提供することはありません
 
 [お問い合わせ先]
-https://twitter.com/RHira1810884
+08soft_lessors@icloud.com
 までメッセージをお願いします
